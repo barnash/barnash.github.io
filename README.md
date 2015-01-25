@@ -1,1 +1,0 @@
-# barnash.github.io
